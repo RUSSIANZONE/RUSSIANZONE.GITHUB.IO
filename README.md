@@ -1,4 +1,6 @@
 # RUSSIANZONE.GITHUB.IO
-Header
-Main Content a. Paragraph 1 b. Paragraph 2 c. Paragraph 3 d. Table 1 e. Table 2
-Footer
+2023-12-01: BLACK FRIDAY SALE . ONLY TILL 05.12
+2023-04-01: WE HAVE DAILY UPDATES. MORE INFORMATION ABOUT FRESH BASES YOU CAN FIND THROUGH SEARCH ENGINE.
+: ccshop.in , ccshop.at, ccshop.xyz, ccshop2jsqvmkhon7hgvuftdhdmftrqrqg6l3cz5deojvbzyw2kjvhid.onion - LOW AND MEDIUM VALID CARDS
+: 2rzkd2ns2anor3k3djlaqf3asot5zjwinhca4myfemtsdeysatuflhid.onion - ACTUAL DOMAIN LIST>>ADD TO BOOKMARKS<<
+: 00c-status.top - ACTUAL DOMAINS LIST >> ADD TO BOOKMARKS <<
